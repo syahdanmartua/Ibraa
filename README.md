@@ -1,2 +1,2 @@
 # Ibraa
-Latihan
+Latihan membuat repo github uhuy 😂
